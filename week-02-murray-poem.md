@@ -1,3 +1,7 @@
-# Title of poem  
+# Hamlet on the Holodeck
 
-Demo sentence
+A stage where pixels and stories blend,
+The holodeck shapes tales with no end.
+Interactive paths, a player's choice,
+In virtual worlds, we find our voice.
+Hamlet reborn, where tech and art extend.
